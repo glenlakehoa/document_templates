@@ -5,7 +5,9 @@ Meeting Minutes August 13, 2024
 by participants. For clarification of any details of these notes, please contact the Glen Lake secretary. For clarification of any statements attributed to the participants of this meeting please contact the individual for clarification before passing judgment on the words contained herein.
 
 Present: 
+
 Absent (excused):
+
 Absent (unexcused):
 
 Meeting called to order:
